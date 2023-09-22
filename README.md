@@ -1,0 +1,1 @@
+me chamo alisson silva sou originario de palotina para tenho 16 anos trabalho moro com meu pai estou estudando no 1 do ensino medio gosto de musicas pratico weelingh bike um esporte oficial atualmente n pratico cursos 
